@@ -21,9 +21,9 @@ Hope you have a great day and kill it out there with whatever you do!
 
 🪐 LinkedIn: https://www.linkedin.com/in/aasharma02/ (feel free to connect!)
 
-▶️ Youtube: https://www.youtube.com/@aman551 (check out my music!)
+🎸 Spotify: https://open.spotify.com/artist/65ZOecASZtoc6hZWIzVbSu?si=wQ7SaJ_sRGWFf60f8Mutew (check out my songs!)
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/65ZOecASZtoc6hZWIzVbSu?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+▶️ Youtube: https://www.youtube.com/@aman551
 
 
 
